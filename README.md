@@ -1,1 +1,1 @@
-My first activity
+mehmet sucuk
